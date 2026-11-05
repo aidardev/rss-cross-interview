@@ -10,4 +10,4 @@
 - Every day, 13:00-22:00 UTC+5
 
 **Additional Notes:**
-Preferred platform: Discord video call. Please message me on Discord to schedule a time.
+Preferred platform: Zoom. Please message me on Discord or Telegram to schedule a time, and I will send you the Zoom link.
